@@ -1,1 +1,0 @@
-jalwa hai humara
